@@ -8,6 +8,10 @@ TBD—I forgot to grab pictures last time I was out.
 
 ## Economics
 
+### Nutrition Info
+
+TBD—I will get this added while prepping for the next trip.
+
 ### Weight (As Listed)
 
 TBD—I will get this added before my next trip.

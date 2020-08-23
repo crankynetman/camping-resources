@@ -45,5 +45,5 @@ I have successfully put my omelette into a tortilla and BOOM, you have yourself 
 
 ## References
 
-* This idea is definitely not my own, and this was based off the recipe [here](https://www.trail.recipes/recipes/steamed-spinach-omelette/). A friend introduced me to this and most of the deviations here from the recipe are thanks to her!
+* This idea is definitely not my own, and this was based off the recipe [here](https://www.trail.recipes/recipes/steamed-spinach-omelette/). A friend introduced me to this, and most of the deviations here from the recipe are thanks to her!
 * Harmony House has lots of great dehydrated veggies that work well for this recipe and others. [Here's](https://www.harmonyhousefoods.com/Dried-Vegetables_c_1.html) their main store page for dehydrated veggies.

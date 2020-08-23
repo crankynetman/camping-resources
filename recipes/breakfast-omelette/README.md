@@ -2,15 +2,23 @@
 
 This is a nice and easy breakfast omelette that is very flexible and easy to make. I think it tastes delicious and I am a bit of a breakfast snob.
 
+## Photos
+
+TBD—I forgot to grab pictures last time I was out.
+
 ## Economics
 
 ### Weight (As Listed)
 
-TBD
+TBD—I will get this added before my next trip.
+
+### Water Usage
+
+For hydration I only use ~75-100mL of water. For cooking, I filled my JetBoil MiniMo to about half-full, so ~500ml of water. This water can (and should!) of course be re-used if you have multiple people, so cooking only uses a fixed amount of water regardless of how many omelettes you are cooking.
 
 ### Fuel Usage
 
-TBD
+This uses about one boil. The fuel usage really depends on how many people are coming with you, as you can re-use the water between omelettes if you have multiple people—The water was still pretty warm between omelettes in my JetBoil MiniMo so I am sure I didn't use as much fuel as a full boil.
 
 ## Ingredients
 

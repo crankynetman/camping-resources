@@ -20,7 +20,7 @@ The ingredients are very flexible, so I will just list what I personally like. Y
 * 1 Tsp of dehydrated Jalapeños (I use [Harmony House Dried Jalapeño Dices](https://www.harmonyhousefoods.com/Dried-Jalapeno-Dices-6-oz_p_1732.html))
 * 1-2 Tsp of dehydrated Onions (I use [Harmony House Dried Onions](https://www.harmonyhousefoods.com/Dried-Onions-14-oz_p_1746.html))
 * 1-2 Tsp of dehydrated Bell Peppers ( I use [Harmony House Dried Peppers, Mixed](https://www.harmonyhousefoods.com/Dried-Peppers-Mixed-10-oz_p_1756.html))
-* 1-2 Tbsp of Cheddar Cheese Powder ( I have used popcorn cheese in the past, but next time I am trying [Anthony's Cheddar Cheese Powder](https://www.anthonysgoods.com/products/anthonys-premium-cheddar-cheese-powder-gluten-free-no-artificial-colors?variant=3765643542558), the main difference being that the popcorn cheese usually has a LOT of salt, which resulted in very salty omelettes last time.)
+* 1-2 Tbsp of Cheddar Cheese Powder ( I have used popcorn cheese in the past, but next time I am trying [Anthony's Cheddar Cheese Powder](https://www.anthonysgoods.com/products/anthonys-premium-cheddar-cheese-powder-gluten-free-no-artificial-colors?variant=3765643542558), the main difference being that the popcorn cheese usually has a LOT of salt, which resulted in very salty omelettes last time)
 * 1-2 Pinches of Salt and Pepper
 
 ## Pre-Trip Prep
@@ -42,6 +42,16 @@ This is a very versatile breakfast meal, you can really use this anywhere that y
 ### Breakfast Burritos
 
 I have successfully put my omelette into a tortilla and BOOM, you have yourself a breakfast burrito!
+
+### Other Veggies
+
+Here are some other veggies that would likely be good in these:
+
+* [Dehydrated Spinach Flakes](https://www.harmonyhousefoods.com/Dried-Spinach-Flakes-4-oz_p_1768.html)
+* [Dehydrated Tomatoes](https://www.harmonyhousefoods.com/Tomatoes_c_25.html)
+* [Diced Dehydrated Potatoes](https://www.harmonyhousefoods.com/Potatoes_c_22.html) could be excellent, especially in a breakfast burrito format
+* [Sliced Dehydrated Mushrooms](https://www.harmonyhousefoods.com/Mushrooms_c_18.html) could be excellent as well—I have a container of these I haven't tried yet, but I think it would pair well with Spinach flakes
+* [Dried Chives](https://www.harmonyhousefoods.com/Chives_c_71.html) aren't for me, but I know a lot of people like chives for some reason
 
 ## References
 

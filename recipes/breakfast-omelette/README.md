@@ -34,7 +34,7 @@ For hydration I only use ~75-100mL of water. For cooking, I filled my JetBoil Mi
 
 ### Fuel Usage
 
-This uses about one boil. The fuel usage really depends on how many people are coming with you, as you can re-use the water between omelettes if you have multiple people—The water was still pretty warm between omelettes in my JetBoil MiniMo so I am sure I didn't use as much fuel as a full boil.
+This uses about one boil. The fuel usage really depends on how many people are coming with you, as you can re-use the water between omelettes if you have multiple people—The water was still pretty warm between omelettes in my JetBoil MiniMo so I am sure I didn't use as much fuel as a full boil. A safe budget is ~10g of fuel per-boil.
 
 ## Ingredients
 

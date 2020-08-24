@@ -1,6 +1,6 @@
-# Breakfast Omelette
+# Cheesy Breakfast Omelette with Peppers
 
-This is a nice and easy breakfast omelette that is very flexible and easy to make. I think it tastes delicious and I am a bit of a breakfast snob.
+This is a nice and easy breakfast omelette that is very flexible and easy to make. I think it tastes delicious even though I am a bit of a breakfast snob.
 
 ## Photos
 
@@ -49,13 +49,13 @@ The ingredients are very flexible, so I will just list what I personally like. Y
 
 ## Pre-Trip Prep
 
-Mix all of the ingredients into a quart size freezer bag. Freezer bags work best since you will need to boil it while out camping.
+Mix all of the ingredients into a quart size freezer bag. Freezer bags work best since you will need to boil it while out camping. Make sure you mix it very well, the cheese has a tendency to clump.
 
 ## Cooking
 
-Add ~80mL of water to the bag to rehydrate the omelette mix. The water doesn't have to be warm, but it likely helps rehydrate things faster if you already have some spare warm water. If you over-fill the water it's not that big of a deal, your omelette will just be a little soupy—In my experience I am not usually a food critic while on the trail. Once you have added the water, it's nice to let it sit for 5-10 minutes to make sure that your veggies are nice and hydrated. If you're super hungry/hangry, don't worry, you can skip the rehydration period, your veggies might just have a little extra crunch.
+Make sure that you mix up everything very well, the egg crystals like to separate from the rest of the ingredients. Add ~75mL of water to the bag to rehydrate the omelette mix. The water doesn't have to be warm as you are about to throw it into the boiling pot. If you over-fill the water it's not that big of a deal, your omelette will just be a little soupy, but I am not usually a food critic while on the trail. You don't really need to let it hydrate at this point, cooking takes a while, so it will have plenty of time to rehydrate. Once you have filled the bag, make sure it is nice and tightly sealed in the freezer Ziploc. Make sure to mix it up again by squishing the bag, being sure to break up any clumps—The cheese specifically likes to clump up.
 
-Once you have filled the bag, make sure it is nice and tightly sealed in the freezer Ziploc and then bring it to a boil. Once your water has boiled, you should let the bag sit in the hot water with your pot's lid on for approximately 10 minutes or so. You can check on the eggs periodically, but I don't think you can really over-cook them, so it's really just a matter of patience.
+Now that everything is mixed and water has been added, place the bag into your pot and then bring it to a boil. Once your water has boiled, you should let the bag sit in the hot water with your pot's lid on for approximately 15-20 minutes—It may even take longer. You can check on the eggs periodically, but I don't think you can really over-cook them, so it's really just a matter of patience. They will be a bit runny no matter what, but if you let them cook long enough, you can get them to firm up quite nicely. If you want to speed things up a bit, you can keep the heat on keeping the pot at a nice slow boil, however, this will of course use more fuel.
 
 When the eggs are done cooking, it will look pretty much like an omelette! It can be a bit hard to tell from the bag, so I have found that squishing the sides of the bag will help you see that the omelette has structure. Once the sides are solidified and can stand on their own in the bag your omelette is ready to eat!
 

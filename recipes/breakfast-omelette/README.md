@@ -22,7 +22,7 @@ TBD—I forgot to grab pictures last time I was out.
 
 ### Weight (As Listed)
 
-~60-70g, depends on what you put in of course. 
+~60-70g, depends on what you put in of course.
 
 ### Water Usage
 

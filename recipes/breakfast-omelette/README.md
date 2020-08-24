@@ -17,8 +17,9 @@ TBD—I forgot to grab pictures last time I was out.
 | Dehydrated Onions (2Tbsp)       | 28       | 0             | 0           | 0                | 4                     | 2           |
 | Dehydrated Bell Peppers (2Tbsp) | 10       | 0             | 6           | 2                | 2                     | 2           |
 |                                 |          |               |             |                  |                       |             |
-| Total:                          | 180      | 10            | 106         | 2                | 6                     | 14          |
-| % Daily Value                   | 9.00%    | 12.82%        | 4.61%       | 7.14%            | 2.43%                 | 28.00%      |
+|                                 |          |               |             |                  |                       |             |
+| **Totals:**                     | 180      | 10            | 106         | 2                | 6                     | 14          |
+| **% Daily Value:**              | 9.00%    | 12.82%        | 4.61%       | 7.14%            | 2.43%                 | 28.00%      |
 
 ### Weight (As Listed)
 

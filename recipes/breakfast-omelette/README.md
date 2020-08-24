@@ -10,7 +10,15 @@ TBD—I forgot to grab pictures last time I was out.
 
 ### Nutrition Info
 
-
+| Item                            | Calories | Total Fat (g) | Sodium (mg) | Carbs (Fiber, g) | Carbs (Less Fiber, g) | Protein (g) |
+|---------------------------------|----------|---------------|-------------|------------------|-----------------------|-------------|
+| Ova Easy Eggs (¼ cup)           | 140      | 10            | 100         | 0                | 0                     | 10          |
+| Dehydrated Jalapeños (1Tsp)     | 2        | 0             | 0           | 0                | 0                     | 0           |
+| Dehydrated Onions (2Tbsp)       | 28       | 0             | 0           | 0                | 4                     | 2           |
+| Dehydrated Bell Peppers (2Tbsp) | 10       | 0             | 6           | 2                | 2                     | 2           |
+|                                 |          |               |             |                  |                       |             |
+| Total:                          | 180      | 10            | 106         | 2                | 6                     | 14          |
+| % Daily Value                   | 9.00%    | 12.82%        | 4.61%       | 7.14%            | 2.43%                 | 28.00%      |
 
 ### Weight (As Listed)
 

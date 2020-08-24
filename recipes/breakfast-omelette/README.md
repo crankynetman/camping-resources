@@ -10,11 +10,11 @@ TBD—I forgot to grab pictures last time I was out.
 
 ### Nutrition Info
 
-TBD—I will get this added while prepping for the next trip.
+
 
 ### Weight (As Listed)
 
-TBD—I will get this added before my next trip.
+~60-70g, depends on what you put in of course. 
 
 ### Water Usage
 

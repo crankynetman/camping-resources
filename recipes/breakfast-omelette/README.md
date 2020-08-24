@@ -13,13 +13,16 @@ TBD—I forgot to grab pictures last time I was out.
 | Item                            | Calories | Total Fat (g) | Sodium (mg) | Carbs (Fiber, g) | Carbs (Less Fiber, g) | Protein (g) |
 |---------------------------------|----------|---------------|-------------|------------------|-----------------------|-------------|
 | Ova Easy Eggs (¼ cup)           | 140      | 10            | 100         | 0                | 0                     | 10          |
+| Cheddar Cheese Powder (1tbsp)   | 35       | 2.25          | 240         | 0                | 2                     | 1.5         |
 | Dehydrated Jalapeños (1Tsp)     | 2        | 0             | 0           | 0                | 0                     | 0           |
 | Dehydrated Onions (2Tbsp)       | 28       | 0             | 0           | 0                | 4                     | 2           |
 | Dehydrated Bell Peppers (2Tbsp) | 10       | 0             | 6           | 2                | 2                     | 2           |
+| Salt (1 Pinch)                  | 0        | 0             | 130         | 0                | 0                     | 0           |
+| Pepper (1 Pinch)                | 0        | 0             | 0           | 0                | 0                     | 0           |
 |                                 |          |               |             |                  |                       |             |
 |                                 |          |               |             |                  |                       |             |
-| **Totals:**                     | 180      | 10            | 106         | 2                | 6                     | 14          |
-| **% Daily Value:**              | 9.00%    | 12.82%        | 4.61%       | 7.14%            | 2.43%                 | 28.00%      |
+| **Total:**                      | 215      | 12.25         | 476         | 2                | 8                     | 15.5        |
+| **%Daily Value:**               | 10.75%   | 15.71%        | 20.70%      | 7.14%            | 3.24%                 | 31.00%      |
 
 ### Weight (As Listed)
 
@@ -39,9 +42,9 @@ The ingredients are very flexible, so I will just list what I personally like. Y
 
 * 4 Tablespoons Ova Easy eggs
 * 1 Tsp of dehydrated Jalapeños (I use [Harmony House Dried Jalapeño Dices](https://www.harmonyhousefoods.com/Dried-Jalapeno-Dices-6-oz_p_1732.html))
-* 1-2 Tsp of dehydrated Onions (I use [Harmony House Dried Onions](https://www.harmonyhousefoods.com/Dried-Onions-14-oz_p_1746.html))
-* 1-2 Tsp of dehydrated Bell Peppers ( I use [Harmony House Dried Peppers, Mixed](https://www.harmonyhousefoods.com/Dried-Peppers-Mixed-10-oz_p_1756.html))
-* 1-2 Tbsp of Cheddar Cheese Powder ( I have used popcorn cheese in the past, but next time I am trying [Anthony's Cheddar Cheese Powder](https://www.anthonysgoods.com/products/anthonys-premium-cheddar-cheese-powder-gluten-free-no-artificial-colors?variant=3765643542558), the main difference being that the popcorn cheese usually has a LOT of salt, which resulted in very salty omelettes last time)
+* 2 Tsp of dehydrated Onions (I use [Harmony House Dried Onions](https://www.harmonyhousefoods.com/Dried-Onions-14-oz_p_1746.html))
+* 1 Tsp of dehydrated Bell Peppers ( I use [Harmony House Dried Peppers, Mixed](https://www.harmonyhousefoods.com/Dried-Peppers-Mixed-10-oz_p_1756.html))
+* 1 Tbsp of Cheddar Cheese Powder (I have used popcorn cheese in the past, but found it too salty, so now I use [Anthony's Cheddar Cheese Powder](https://www.anthonysgoods.com/products/anthonys-premium-cheddar-cheese-powder-gluten-free-no-artificial-colors?variant=3765643542558). This makes for a pretty cheesy omelette.)
 * 1-2 Pinches of Salt and Pepper
 
 ## Pre-Trip Prep

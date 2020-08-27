@@ -26,7 +26,7 @@ TBD—I forgot to grab pictures last time I was out.
 
 ### Weight (As Listed)
 
-~60-70g, depends on what you put in of course.
+~50-60g, depends on what you put in of course.
 
 ### Water Usage
 
@@ -53,7 +53,7 @@ Mix all of the ingredients into a quart size freezer bag. Freezer bags work best
 
 ## Cooking
 
-Make sure that you mix up everything very well, the egg crystals like to separate from the rest of the ingredients. Add ~75mL of water to the bag to rehydrate the omelette mix. The water doesn't have to be warm as you are about to throw it into the boiling pot. If you over-fill the water it's not that big of a deal, your omelette will just be a little soupy, but I am not usually a food critic while on the trail. You don't really need to let it hydrate at this point, cooking takes a while, so it will have plenty of time to rehydrate. Once you have filled the bag, make sure it is nice and tightly sealed in the freezer Ziploc. Make sure to mix it up again by squishing the bag, being sure to break up any clumps—The cheese specifically likes to clump up.
+Make sure that you mix up everything very well, the egg crystals like to separate from the rest of the ingredients. I find that it works well to keep air in the bag, roll it down so that the air and ingredients have the bag tightly inflated and then vigourously shake. Add ~75mL of water to the bag to rehydrate the omelette mix. The water doesn't have to be warm as you are about to throw it into the boiling pot. If you over-fill the water it's not that big of a deal, your omelette will just be a little soupy, but I am not usually a food critic while on the trail. You don't really need to let it hydrate at this point, cooking takes a while, so it will have plenty of time to rehydrate. Once you have filled the bag, make sure it is nice and tightly sealed in the freezer Ziploc. Make sure to mix it up again by squishing the bag, being sure to break up any clumps—The cheese specifically likes to clump up.
 
 Now that everything is mixed and water has been added, place the bag into your pot and then bring it to a boil. Once your water has boiled, you should let the bag sit in the hot water with your pot's lid on for approximately 15-20 minutes—It may even take longer. You can check on the eggs periodically, but I don't think you can really over-cook them, so it's really just a matter of patience. They will be a bit runny no matter what, but if you let them cook long enough, you can get them to firm up quite nicely. If you want to speed things up a bit, you can leave the heat on, keeping the water at a nice slow simmer, however, this will of course use more fuel.
 
